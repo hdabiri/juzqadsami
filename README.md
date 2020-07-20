@@ -1,1 +1,0 @@
-# Juz Tabarak Competition Pages
